@@ -2,7 +2,7 @@
 - 👀 I’m interested in web design%developer
 - 🌱 I’m currently learning front-end&back-end development
 - 💞️ I’m looking to collaborate on "website project" (development)
-- 📫 How to reach ..contact on(whatsapp,08107450970)
+- 📫 How to reach ..contact on(whatsapp,08107450970)   https://wa.link/3qn25y
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
